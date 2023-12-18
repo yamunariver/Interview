@@ -63,3 +63,31 @@ Though quoting an expected CTC amount is your discretion, do not inflate or quot
 
 
 —
+
+
+
+OPTION 1
+
+My current CTC is 4.6 LPA along with bonus and other benefits However, I have Upskilled myself by doing various Trainings, Courses and Certifications, 
+which has improved my profile I'am expecting a hike of 40% on my CTC
+
+OPTION 2
+
+My Current CTC is 4.6 LPA along with bonuses like additional Performace 
+
+Incentive Medical insurance and Other benefits. 
+
+However, what i am currently earning is not representative of my current 
+
+value and I'am expecting a hike of 30 % on my CTC
+
+
+How to say "I don't know" to the interviewer
+
+
+
+I appreciate your question but I don't hava the exact answer at the moment. 
+
+However, I'm confident in my ability to quickly learn and find solution when 
+
+faced with challenges
