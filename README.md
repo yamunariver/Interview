@@ -63,3 +63,20 @@ Though quoting an expected CTC amount is your discretion, do not inflate or quot
 
 
 —
+OPTION 1
+
+My current CTC is 4.6 LPA along with bonus and other benefits However, I have U>
+which has improved my profile I'am expecting a hike of 40% on my CTC
+
+OPTION 2
+
+My Current CTC is 4.6 LPA along with bonuses like additional Performace      
+
+Incentive Medical insurance and	Other benefits. 
+
+However, what i am currently earning is not representative of my current     
+
+value and I'am expecting a hike	of 30 %	on my CTC
+
+
+__
