@@ -1,8 +1,7 @@
 # Interview
 
-Job change
-"I am pursuing a new opportunity that aligns with my career goals, offers professional growth, and provides a better fit for my skills and values."
-
+### Job change
+I am pursuing a new opportunity that aligns with my career goals, offers professional growth, and provides a better fit for my skills and values.
 
 
 
