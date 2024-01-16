@@ -3,6 +3,9 @@
 ### Job change
 I am pursuing a new opportunity that aligns with my career goals, offers professional growth, and provides a better fit for my skills and values.
 
+### why should i select you
+
+Selecting me brings a combination of proven skills, a track record of achievements, and a passion for [industry/company], ensuring immediate value and long-term dedication to your team's success.
 
 
 —
